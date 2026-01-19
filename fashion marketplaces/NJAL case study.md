@@ -8,6 +8,12 @@ I hate all their vertical text - impossible to read
 Asks you to subscribe for 10/month when signing up as a designer!
 
 
+[https://www.linkedin.com/company/not-just-a-label/people/](https://www.linkedin.com/company/not-just-a-label/people/)
+- 64 employees
+
+
+
+
 We give our designers direct contact to the most renowned industry leaders, stylists, buyers, celebrities and pressYou will receive messages and opportunity requests directly and will have the opportunity to connect with fellow designers through direct messaging and a community forumWith only a 30% commission, our platform ensures that all designers, whether just out of school or an established brand, can afford to participate and showcase their unique creations.
 Already does students - though only a few that haven't yet graduated  
 [https://industry.notjustalabel.com/hongshan-feng](https://industry.notjustalabel.com/hongshan-feng)

@@ -1,4 +1,4 @@
-# Gemini market reesearch on commission marketplaces
+# Gemini market research on commission marketplaces
 
 https://gemini.google.com/share/e325e5a42d03
 

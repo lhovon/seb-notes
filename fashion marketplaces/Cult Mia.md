@@ -26,3 +26,19 @@ https://www.drapersonline.com/insight/analysis/cult-mias-voyage-of-global-brand-
 - Learning from 2020’s sales and testing of 14 different categories, we will focus on clothing, followed by jewellery and bags.
 - The platform wants to expand on its partner services offering by starting to financially invest and back the brands in which we see potential.
 
+
+## Sasski
+
+Found from shipturtle - shopify + shipturtle integ
+https://sasski.com/pages/become-a-vendor 
+- offer free international shipping 
+
+## Libre London
+https://www.librelondon.com/policies/shipping-policy
+- UK only
+
+
+
+https://www.1stdibs.com/about/
+"Our best-in-class platform allows shoppers to buy directly or negotiate a price — and enables them to interact with sellers throughout all stages of the transaction, including item inquiries, price negotiations and customization requests."
+
